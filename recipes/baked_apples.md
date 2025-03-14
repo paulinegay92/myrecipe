@@ -2,7 +2,7 @@
 
 ## Ingredients 
 - 4 sour apples (570 - 600 g total)
-- 75 ml maple syrup
+- 75 ml agave syrup or honey
 - Cinnamon for sprinkling
 
 ## Preparation
