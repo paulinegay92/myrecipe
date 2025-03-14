@@ -1,4 +1,5 @@
 # Baked apples with syrup
+This recipe is for 4 peoples
 
 ## Ingredients 
 - 4 sour apples (570 - 600 g total)
